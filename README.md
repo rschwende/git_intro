@@ -1,1 +1,2 @@
 Ryan Schwendeman
+schwendr@oregonstate.edu
